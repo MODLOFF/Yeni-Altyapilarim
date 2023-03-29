@@ -1,3 +1,3 @@
 # Yeni Altyapılarım
 
-50 starda yeni altyapılarımı paylaşacam.
+2 yılda 50 star gelmemiş :) Bir kaç haftaya yeni altyapılarımı paylaşacağım.
